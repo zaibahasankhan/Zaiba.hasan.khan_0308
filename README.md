@@ -17,4 +17,4 @@
 
 ### 📫 Connect with Me
 - GitHub: https://github.com/zaibahasankhan
-- LinkedIn: (add link)
+- LinkedIn: https://www.linkedin.com/in/dr-zaiba-hasan-khan-463555109/
