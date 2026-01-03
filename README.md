@@ -1,4 +1,3 @@
-# Zaiba.hasan.khan_0308
 ## 👋 Hi, I'm Zaiba Hasan Khan
 
 🔬 Bioinformatician | PhD in Plant Molecular Biology  
